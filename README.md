@@ -1,0 +1,1 @@
+# TarihSlayt-2024-2025-1.-d-nem-1.-s-zl-
